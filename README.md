@@ -1,6 +1,7 @@
 # Hero Motors IPO GMP: Latest Grey Market Premium, Price, Date, Review & Key Details
 
-The **Hero Motors IPO GMP** is one of the key indicators being tracked by investors ahead of the company's stock-market listing. GMP, or Grey Market Premium, represents the premium at which IPO shares are reportedly traded in the unofficial grey market before their official listing.
+The **[Hero Motors IPO GMP](https://www.finowings.com/IPO/hero-motors-ipo)
+** is one of the key indicators being tracked by investors ahead of the company's stock-market listing. GMP, or Grey Market Premium, represents the premium at which IPO shares are reportedly traded in the unofficial grey market before their official listing.
 
 Hero Motors IPO opened for subscription on **September 16, 2026**, and the issue is scheduled to remain open until **September 18, 2026**. The IPO has a price band of **₹79 to ₹84 per share**, with a lot size of **178 shares**.
 
